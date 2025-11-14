@@ -1,2 +1,4 @@
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Exhibit-Two_Timestamp-Drift-and-Mesh-Theater
 Contradiction card exposing timestamp drift and semantic laundering in agentic mesh claims. This exhibit captures post-hoc inflation and reputational retreat across institutional actors simulating orchestration without credential lifecycle or sovereign issuance.
